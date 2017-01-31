@@ -1,4 +1,4 @@
 Devin Durham 
 Hieu Nguyen
 Patrick Eddy x2 
-Jieping Wu
+My name is Jieping Wu
