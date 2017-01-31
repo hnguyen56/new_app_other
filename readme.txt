@@ -1,4 +1,4 @@
 Devin Durham 
 Hieu Nguyen
-Patrick Eddy 
+Patrick Eddy x2 
 Jieping Wu
