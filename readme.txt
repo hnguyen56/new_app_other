@@ -1,5 +1,5 @@
 Hello my name is Devin Durham
-Hieu Nguyen
-Patrick Eddy x2 
+Hello my name is Hieu Nguyen
+Hello my name is Patrick Eddy
 Hello my name is Jieping Wu
 
